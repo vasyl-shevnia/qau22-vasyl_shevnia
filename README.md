@@ -1,0 +1,1 @@
+# qau22-vasyl_shevnia
